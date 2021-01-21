@@ -1,2 +1,0 @@
-# prasannazoom.github.io
-prasannazoom
